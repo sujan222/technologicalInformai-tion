@@ -8,3 +8,6 @@ Lokesh Oli - Everything technology.
 Nepal Drives - News on cars in nepal and international countries.
 Carmandu - All about Cars
 Oliz Store - Gadget reviews.
+techpana- technology news
+tecmandu-review site
+ktm2day- auto tech site
