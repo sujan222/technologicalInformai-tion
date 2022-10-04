@@ -1,0 +1,1 @@
+*------contribution rules---- tp contribute to the repositary just add information in separate files created by us or you it will be merged once it became finalised by us to approve. Must be within the topic of file**-//////////------////////----
