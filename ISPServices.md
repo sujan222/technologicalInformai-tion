@@ -17,3 +17,10 @@ ISP Internet Service Providers
   
   WebSurfer Nepal - WebSurfer Nepal
   
+  Boardlink - boardlink
+  
+  chitwran Net - chitwran Net
+  
+  Dish Home - dishhome fiber net
+  
+  
