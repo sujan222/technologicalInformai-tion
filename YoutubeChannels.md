@@ -19,3 +19,11 @@ Carmandu - All about Cars
 Oliz Store - Gadget reviews.
 
 Techlekh-gadgets reviews..
+
+Subash Poudel - Travel vlogs
+
+zalan - thuglife videos
+
+paradym podcast - interaction with peoples
+
+chill pill - interaction with comedins
