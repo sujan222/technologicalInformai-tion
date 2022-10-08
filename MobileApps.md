@@ -37,3 +37,12 @@ Nagarik App - Govermental App
  
  Nepal Passport Enquiry - 
 
+ fonepay
+ 
+ merosharebazar
+ 
+ nepali matrimony
+ 
+ 
+
+
