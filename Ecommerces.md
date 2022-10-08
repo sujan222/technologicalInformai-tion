@@ -12,4 +12,10 @@ UG Bazaar - Send gifts to Nepal. Send cakes to Nepal. Online Shopping
 
 Yarsa Bazar
 
-khetifood-food and vegetable delivery service in Nepal
+khetifood -food and vegetable delivery service in Nepal
+
+foodmood - food delivery in pokhara
+
+daraz- largest online store in nepal
+
+
