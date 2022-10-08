@@ -27,3 +27,7 @@ zalan - thuglife videos
 paradym podcast - interaction with peoples
 
 chill pill - interaction with comedins
+
+4k gaming nepal - nepal famous pubg streamer
+
+Mr.hyozu - pubg streamer
